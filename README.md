@@ -1,4 +1,4 @@
-Venho me apresentar, me chamo Daniel,tenho 22 anos e estou interessado em ingressar nessa empresa.
+Venho me apresentar, me chamo Daniel, tenho 22 anos e estou interessado em ingressar nessa empresa.
 No meu currículo apresento cursos de inglês e computação:
 Cursei no Inglês por 4 anos, completei o curso e já converso fluentemente.
 Cursei na Computação por 4 anos, curso completo.
